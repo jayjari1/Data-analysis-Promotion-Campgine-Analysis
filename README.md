@@ -15,3 +15,4 @@ The company call AliQ mart who is the gian retailer of 50+ store in south india,
 3. Best Category is Combo1 , Home Application , Homw Care
 
 ## For Video with Detali Presentation
+https://www.linkedin.com/posts/jay-jariwala-data-analyst-n-scientist_excited-to-share-my-entry-for-resume-project-activity-7166062858072453120-FRf6?utm_source=share&utm_medium=member_desktop
